@@ -1,16 +1,72 @@
-## Hi there 👋
 
-<!--
-**kaleidoInferno/kaleidoInferno** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## gen infㅤ
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+﹉﹉﹉﹉﹉﹉﹉ 🫀 ﹉﹉﹉﹉﹉﹉﹉﹉
+
+
+—   *kasper , kas , kaz* . .   ☆
+
+
+🩸 ┊꒱ **he**/any
+
+
+─────────
+
+***other***
+
+
+
+★ ┊ **friends** / mutuals : Piper , Alex , Fox , Joker , Ratta , Litzee
+
+🏳‍🌈 ┊ omnisexual ┊ transmasc . boyflux . genderfluid ┊ **13**
+
+💊 ┊ 11/8 , semi-nsfw , ESFP
+
+❤ ┊ Stick + Elliot 
+
+🧠 ┊ ADHD , Probably depressed , probably hypersexual
+
+👾 ┊ number #1 Infected fictkin // mr.doombringer kinnie
+
+─────────
+
+***pony town***
+
+
+
+🟢 ┊ Online + activley chatting
+
+🌙 ┊ offtab ,, whisper to interact
+
+⛔ ┊ dont interact ,, either busy or not in the mood to talk
+
+
+**c+h** is always welcomed
+
+***DO NOT*** copy any of my skins please!
+
+﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
+
+─────────
+
+## DNI
+
+Anyone under 12
+
+Basic criteira 
+
+Homophobic, Transphobic, etc.
+
+Misogynistic
+
+Racist, Sexist, Ableist, Discrimination, etc.
+
+Invalidates A Person's Pronouns / Gender / Identity
+
+Pedophile, Sexualizes Minors, Jokes About R×pe, etc.
+
+Supports, participates, tolerates, or justify any of the above.
+
+─────────
