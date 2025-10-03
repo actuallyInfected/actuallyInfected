@@ -1,7 +1,7 @@
 
 ## gen infㅤ
 
-
+[carrd](http://kaleidoinferno.carrd.co/)
 
 ﹉﹉﹉﹉﹉﹉﹉ 🫀 ﹉﹉﹉﹉﹉﹉﹉﹉
 
