@@ -1,72 +1,21 @@
-
-## gen infㅤ
-
-[carrd](http://kaleidoinferno.carrd.co/)
-
-﹉﹉﹉﹉﹉﹉﹉ 🫀 ﹉﹉﹉﹉﹉﹉﹉﹉
-
-
-—   *kasper , kas , kaz* . .   ☆
-
-
-🩸 ┊꒱ **he**/any
-
-
-─────────
-
-***other***
+<img width="235" height="175" alt="a3015b1e78de99bf8b5ac7c323bd66ef__1_-removebg-preview" src="https://github.com/user-attachments/assets/60b922a4-d9bc-469e-9629-691c2f8a5830" />
 
 
 
-★ ┊ **friends** / mutuals : Piper , Alex , Fox , Joker , Ratta , Litzee
+## - Welcome ★
+ ![organ3](https://github.com/user-attachments/assets/3de95f9e-6313-45ce-b170-1ecea8832dbf)
+ ⯈ [ Call me Kasper! ,, He/Any  ]
 
-🏳‍🌈 ┊ omnisexual ┊ transmasc . boyflux . genderfluid ┊ **13**
-
-💊 ┊ 11/8 , semi-nsfw , ESFP
-
-❤ ┊ Stick + Elliot 
-
-🧠 ┊ ADHD , Probably depressed , probably hypersexual
-
-👾 ┊ number #1 Infected fictkin // mr.doombringer kinnie
-
-─────────
-
-***pony town***
+ ᯓ★ c+h welcome! usually offtab .. w2i
 
 
-
-🟢 ┊ Online + activley chatting
-
-🌙 ┊ offtab ,, whisper to interact
-
-⛔ ┊ dont interact ,, either busy or not in the mood to talk
+  ࣪𖤐 !! Self-taught artist , animator + programmer/coder ![emo](https://github.com/user-attachments/assets/8a943197-e38a-491d-ba87-96b0c3b80090)
 
 
-**c+h** is always welcomed
+‧₊˚ ┊ heavy Infected and Mr. Doombringer fictkin , doubles iwc
 
-***DO NOT*** copy any of my skins please!
 
-﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
+  ♯ links ,,  [carrd](https://kaleidoinferno.carrd.co/)  // [DNI](https://kaleidoinfernodni.carrd.co/) // [BYI](https://kaleidoinfernobyf.carrd.co/)
 
-─────────
 
-## DNI
-
-Anyone under 12
-
-Basic criteira 
-
-Homophobic, Transphobic, etc.
-
-Misogynistic
-
-Racist, Sexist, Ableist, Discrimination, etc.
-
-Invalidates A Person's Pronouns / Gender / Identity
-
-Pedophile, Sexualizes Minors, Jokes About R×pe, etc.
-
-Supports, participates, tolerates, or justify any of the above.
-
-─────────
+  ![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=6f0f0f)
