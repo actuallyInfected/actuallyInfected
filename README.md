@@ -2,8 +2,8 @@
 
 
 
-## - Welcome ★
- ![organ3](https://github.com/user-attachments/assets/3de95f9e-6313-45ce-b170-1ecea8832dbf)
+ ## - Welcome ★
+![organ3](https://github.com/user-attachments/assets/3de95f9e-6313-45ce-b170-1ecea8832dbf)
  ⯈ [ Call me Kasper! ,, He/Any  ]
 
  ᯓ★ c+h welcome! usually offtab .. w2i
@@ -18,4 +18,4 @@
   ♯ links ,,  [carrd](https://kaleidoinferno.carrd.co/)  // [DNI](https://kaleidoinfernodni.carrd.co/) // [BYI](https://kaleidoinfernobyf.carrd.co/)
 
 
-  ![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=6f0f0f)
+![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=6f0f0f)
