@@ -12,7 +12,7 @@
   ࣪𖤐 !! Self-taught artist , animator + programmer/coder ![emo](https://github.com/user-attachments/assets/8a943197-e38a-491d-ba87-96b0c3b80090)
 
 
-‧₊˚ ┊ heavy Infected and Mr. Doombringer fictkin , doubles iwc
+‧₊˚ ┊ heavy Infected, Dave Strider and Mr. Doombringer fictkin , doubles iwc
 
 
   ♯ links ,,  [carrd](https://kaleidoinferno.carrd.co/)  // [DNI](https://kaleidoinfernodni.carrd.co/) // [BYI](https://kaleidoinfernobyf.carrd.co/)
