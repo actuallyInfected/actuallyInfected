@@ -15,7 +15,7 @@
   ࣪𖤐 !! Self-taught artist , animator + programmer/coder ![emo](https://github.com/user-attachments/assets/8a943197-e38a-491d-ba87-96b0c3b80090)
 
 
-‧₊˚ ┊ heavy $\color{#f645a2}{Infected}$, $\color{#e00000}{Dave Strider}$ , $\color{#481212}{Vampguest}$ and $\color{#a80404}{Mr Doombringer}$ fictkin , doubles iwc
+‧₊˚ ┊ heavy $\color{#f645a2}{Infected}$, $\color{#e00000}{DaveStrider}$ , $\color{#481212}{Vampguest}$ and $\color{#a80404}{MrDoombringer}$ fictkin , doubles iwc
 
 
 [Carrd](https://actuallyinfected.carrd.co/) , [DNI](https://kaleidoinfernodni.carrd.co/) , [BYI](https://kaleidoinfernobyf.carrd.co/) , [guns.lol](https://guns.lol/kaleidoinferno)
