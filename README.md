@@ -1,7 +1,5 @@
 <img width="367" height="479" alt="Screenshot_2025-10-07_10 47 50_PM-removebg-preview" src="https://github.com/user-attachments/assets/8bdef46c-4185-484d-ba18-ea4617f7b42e" />
 
-![80s](https://github.com/user-attachments/assets/5d362e06-0442-42bc-991b-9deed79f259a)
-
 
 
 
@@ -20,7 +18,7 @@
 ‧₊˚ ┊ heavy Infected, Dave Strider, Vampguest and Mr. Doombringer fictkin , doubles iwc
 
 
-  ♯ links ,,  [carrd](https://kaleidoinferno.carrd.co/)  // [DNI](https://kaleidoinfernodni.carrd.co/) // [BYI](https://kaleidoinfernobyf.carrd.co/)
+[Carrd](https://kaleidoinferno.carrd.co/) , [DNI](https://kaleidoinfernodni.carrd.co/) , [BYI](https://kaleidoinfernobyf.carrd.co/) , [guns.lol](https://guns.lol/kaleidoinferno)
 
 
  ![vvamp](https://github.com/user-attachments/assets/b628ee1d-f508-4130-b8ef-bab720ad8e8a)
