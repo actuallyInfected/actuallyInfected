@@ -18,7 +18,7 @@
 ‧₊˚ ┊ heavy $\color{#f645a2}{Infected}$, $\color{#e00000}{DaveStrider}$ , $\color{#481212}{Vampguest}$ and $\color{#a80404}{MrDoombringer}$ fictkin , doubles iwc
 
 
-[Carrd](https://actuallyinfected.carrd.co/) , [DNI](https://kaleidoinfernodni.carrd.co/) , [BYI](https://kaleidoinfernobyf.carrd.co/) , [guns.lol](https://guns.lol/kaleidoinferno)
+[carrd](https://infectedsinferno.carrd.co/) , [DNI](https://infectedsinfernodni.carrd.co/) , [BYI](https://infectedsinfernobyi.carrd.co/) , [guns.lol](https://guns.lol/infectedsinferno)
 
 
  ![vvamp](https://github.com/user-attachments/assets/b628ee1d-f508-4130-b8ef-bab720ad8e8a)
