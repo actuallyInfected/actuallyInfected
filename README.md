@@ -24,7 +24,7 @@ l1nks w1ll be add3d wh3n i f1n1sh! ![f350952d](https://github.com/user-attachmen
 
 
 
-![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4e)
+![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4eusername&color=ff1ca9&style=square&label=C00l_p33ps_&abreviated=true")
 
 
 
