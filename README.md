@@ -5,7 +5,7 @@
 ![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4eusername&color=ff1ca9&style=square&label=C00l_p33ps_&abreviated=true")
 
 ![500231653-01fc951a-765d-43dd-80a1-25e1fda2e69a](https://github.com/user-attachments/assets/814afb0b-9aec-4729-96d6-b76ff07cc912)
-  l1nks wip 
+ [☆](https://guns.lol/infectedsinferno)   [★](https://actuallyinfected.carrd.co/)  
 
   <p>
 
