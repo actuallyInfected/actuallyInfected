@@ -12,6 +12,8 @@
 <details>
   <summary> - BYI   </summary>
 
+┆I am 13 , 18+ DNI unless we're close
+
 ┆ I am THE Infected heavy fict-kin ,, treat me as if i am them.
 <p>
 
