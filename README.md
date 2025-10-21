@@ -1,4 +1,6 @@
-<div align="center"><img width="736" height="176"![headerimage](https://github.com/user-attachments/assets/3d16e3b4-62b1-4c5b-bd13-ac0082f93a0b)
+![headerimage](https://github.com/user-attachments/assets/6c84e536-e956-4ad9-beda-fcef5bda8923)
+
+
 
 
 
@@ -9,7 +11,7 @@
 ![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4eusername&color=3681d4&style=square&label=fishies_&abreviated=true")
 
 
-$${\color{#114cb2}{Kasper}
+
 
 
 
@@ -63,10 +65,10 @@ $${\color{#114cb2}{Kasper}
 ![blue2](https://github.com/user-attachments/assets/28fcc86e-3c8c-4d40-9887-6a373edbd19f) #1 shark lover!!
 
 
-[comms](https://sharkzcomms.carrd.co/) ,, guns.lol ,, carrd
+![bc689005](https://github.com/user-attachments/assets/64d2b22a-9614-4166-817f-8d254b10a382) [comms](https://sharkzcomms.carrd.co/) ,, guns.lol ,, carrd
 
 
-![bc689005](https://github.com/user-attachments/assets/64d2b22a-9614-4166-817f-8d254b10a382)
+
 
 
 <p>
