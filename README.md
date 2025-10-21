@@ -1,11 +1,18 @@
-<img align="right" width="660" height="660" alt="Rip_poptart_random_years-removebg-preview" src="https://github.com/user-attachments/assets/eaa25de3-278a-4018-9b75-5be5f4d09a3a" />
+<div align="center"><img width="736" height="176"![headerimage](https://github.com/user-attachments/assets/3d16e3b4-62b1-4c5b-bd13-ac0082f93a0b)
 
 
 
-![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4eusername&color=ff1ca9&style=square&label=C00l_p33ps_&abreviated=true")
 
-![500231653-01fc951a-765d-43dd-80a1-25e1fda2e69a](https://github.com/user-attachments/assets/814afb0b-9aec-4729-96d6-b76ff07cc912)
- [guns.lol](https://guns.lol/actuallyinfected) .  [YT](https://www.youtube.com/@actuallyInfected)  .  [comms](https://actuallyinfectedcomms.carrd.co/#) [carrd](https://actuallyinfected.carrd.co/#)
+![stripe2](https://github.com/user-attachments/assets/b2c42b93-9b4a-4a35-a2f2-dd087ada0aec)
+
+
+![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4eusername&color=3681d4&style=square&label=fishies_&abreviated=true")
+
+
+$${\color{#114cb2}{Kasper}
+
+
+
 
   <p>
 
@@ -51,13 +58,20 @@
 
 </details>
 
-M0re stuff s00n! <img width="50" height="50" alt="Infected_epic-removebg-preview" src="https://github.com/user-attachments/assets/584042e1-e3fe-44c4-8d9f-daf250265bb1" />
 
+
+![blue2](https://github.com/user-attachments/assets/28fcc86e-3c8c-4d40-9887-6a373edbd19f) #1 shark lover!!
+
+
+[comms](https://sharkzcomms.carrd.co/) ,, guns.lol ,, carrd
+
+
+![bc689005](https://github.com/user-attachments/assets/64d2b22a-9614-4166-817f-8d254b10a382)
 
 
 <p>
 
-![oyvjf3](https://github.com/user-attachments/assets/0eaaa30d-c3a5-4b95-bcc6-995bcf473e15)
 
 
 
+![5ec461f3](https://github.com/user-attachments/assets/f987e65b-d3c5-4d41-bdf0-25eae3444be4)
