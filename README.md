@@ -65,7 +65,7 @@
 ![blue2](https://github.com/user-attachments/assets/28fcc86e-3c8c-4d40-9887-6a373edbd19f) #1 shark lover!!
 
 
-![bc689005](https://github.com/user-attachments/assets/64d2b22a-9614-4166-817f-8d254b10a382) [comms](https://sharkzcomms.carrd.co/) ,, guns.lol ,, carrd
+![bc689005](https://github.com/user-attachments/assets/64d2b22a-9614-4166-817f-8d254b10a382) [comms](https://sharkzcomms.carrd.co/) ,, [guns.lol](https://guns.lol/sharkz_areswag) ,, [carrd](https://actuallyinfected.carrd.co/)
 
 
 
