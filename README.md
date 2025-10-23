@@ -11,6 +11,7 @@
 
 ![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4eusername&color=e65bff&style=square&label=c00l_p33ps_&abreviated=true")
 
+![208](https://github.com/user-attachments/assets/1c2bc1c7-e606-44fc-ab52-ed17a00142a0)
 
 
 
@@ -63,10 +64,12 @@
 
 
 
-![blue2](https://github.com/user-attachments/assets/28fcc86e-3c8c-4d40-9887-6a373edbd19f) #1 shark lover!!
+ #1 shark lover!!
 
 
-![bc689005](https://github.com/user-attachments/assets/64d2b22a-9614-4166-817f-8d254b10a382) [comms](https://sharkzcomms.carrd.co/) ,, [guns.lol](https://guns.lol/sharkz_areswag) ,, [carrd](https://actuallyinfected.carrd.co/)
+
+<img width="12" height="11" alt="9089c6a0" src="https://github.com/user-attachments/assets/0503f51a-c387-4b66-800d-626033645411" /> [comms](https://sharkzcomms.carrd.co/) ,, [guns.lol](https://guns.lol/sharkz_areswag) ,, [carrd](https://actuallyinfected.carrd.co/)<img width="12" height="11" alt="518557db" src="https://github.com/user-attachments/assets/812a9645-f7a7-4716-9aa8-3db2b30dae7d" />
+
 
 
 
