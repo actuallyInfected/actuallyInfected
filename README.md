@@ -1,19 +1,20 @@
-![headerimage](https://github.com/user-attachments/assets/6c84e536-e956-4ad9-beda-fcef5bda8923)
+<img width="1200" height="510" alt="image" src="https://github.com/user-attachments/assets/a49ab1a4-3857-45d5-b8e5-b44f9cd8edbe" />
 
 
 
 
 
 
-![stripe2](https://github.com/user-attachments/assets/b2c42b93-9b4a-4a35-a2f2-dd087ada0aec)
-
-
-![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4eusername&color=3681d4&style=square&label=fishies_&abreviated=true")
+<div align="center">
 
 
 
+![](https://komarev.com/ghpvc/?username=kaleidoInferno&color=7c1d4eusername&color=e65bff&style=square&label=c00l_p33ps_&abreviated=true")
 
 
+
+
+![](https://i.imgur.com/mA35ryW.png) ![image](https://i.imgur.com/kwGhcPQ.png)
 
 
   <p>
