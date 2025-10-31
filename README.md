@@ -68,7 +68,7 @@
 
 
 
-<img width="12" height="11" alt="9089c6a0" src="https://github.com/user-attachments/assets/0503f51a-c387-4b66-800d-626033645411" /> [comms](https://sharkzcomms.carrd.co/) ,, [guns.lol](https://guns.lol/sharkz_areswag) ,, [carrd](https://sharkzareswag.carrd.co/) <img width="12" height="11" alt="518557db" src="https://github.com/user-attachments/assets/812a9645-f7a7-4716-9aa8-3db2b30dae7d" />
+<img width="12" height="11" alt="9089c6a0" src="https://github.com/user-attachments/assets/0503f51a-c387-4b66-800d-626033645411" /> [comms](https://sharkzcomms.carrd.co/) ,, [guns.lol](https://guns.lol/confettisharkz) ,, [carrd](https://confettisharkz.carrd.co/) <img width="12" height="11" alt="518557db" src="https://github.com/user-attachments/assets/812a9645-f7a7-4716-9aa8-3db2b30dae7d" />
 
 
 
