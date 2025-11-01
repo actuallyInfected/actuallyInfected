@@ -166,9 +166,9 @@ that internet addict™
 
 ![ea8232c7](https://github.com/user-attachments/assets/6fcb1e84-f685-40c5-8b5a-987c6ec41c46)
 
-[carrd](https://confettisharkz.carrd.co/) 
+[carrd](https://kaleidoanarchy.carrd.co/)
 
-[comms](https://sharkzcomms.carrd.co/)
+[comms](https://kaleidoanarchycomms.carrd.co/)
 
 <img width="23" height="23" alt="4c53ec37" src="https://github.com/user-attachments/assets/53d6d382-f14e-48b3-b9a7-e8708570781c" /> [guns.lol](https://guns.lol/confettisharkz)
 
